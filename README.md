@@ -1,5 +1,5 @@
 ### RCMaehl's Github Page
 
-* Self Taught Freelance Automation Engineer 
+* Self Taught Programmer/Scripter 
 * 9 Years Customer Service Experience
 * Looking for those looking for me
