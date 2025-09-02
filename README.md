@@ -6,5 +6,5 @@
     * Bash + Sh + Zsh
     * MySQL + PHP
     * PowerApps + PowerAutomate
-* 10 Years Customer Service Experience
+* 12 Years Customer Service Experience
 * Looking for those looking for me
